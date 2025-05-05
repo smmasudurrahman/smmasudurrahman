@@ -5,7 +5,7 @@
 ### Learn About Porosh Rahman
 
 <p align= "center">
-<img src="https://lh3.googleusercontent.com/pw/AP1GczPpyZPwwYyoCqLy9XnYcmIybFbWI3R5gRxPF3joxRUiCo-ErC3YFJsKo-En5YDOfJSCYLIc9WB7Kp6vWz9uUiK6C5AgvJpixzkb9qZOSjYi1t-rWXmC8Wn2y--Zk_W1gjyizK9FYOr24cUTXquacnWJ=w1367-h911-s-no-gm?authuser=0" width=50% height=auto>
+<img src="https://lh3.googleusercontent.com/pw/AP1GczPLqVm8r_OELRddMAFkmZUfxtv8w2BIoZ6FC-_JrQpAf2QYi-dcCNK8pkuSnqYxU6_imZ5GvIARy6_1cSoVVbgKpJxmV4_BliBbwh0KWQisDru_qKYVFM6TczgoLSixxNUEiwurcKPT5Ac5YHNUmfmj=w1367-h911-s-no-gm?authuser=0" width=50% height=auto>
   </p>
   
  ## My Work Experience:
